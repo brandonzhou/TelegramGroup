@@ -574,7 +574,7 @@
 *   iOS 越狱交流群:[https://t.me/iOS_jailbreaking](https://t.me/iOS_jailbreaking)
 *   Jailbreak Chat:[https://t.me/joinchat/AAAAAD161xTKVMuu-bOaxg](https://t.me/joinchat/AAAAAD161xTKVMuu-bOaxg)
 *   Telegram Hath Group:[https://t.me/telehathgroup](https://t.me/telehathgroup)
-*   Vps 交流:[https://t.me/talkvps](https://t.me/talkvps)
+*   Vps 交流:[https://t.me/talkvps](https://t.me/talkvps)   --- 打开有惊喜
 *   自由世界之声:[https://t.me/TetgramC](https://t.me/TetgramC)
 *   今日我地唔倾健身倾人生:[https://t.me/telegrc](https://t.me/telegrc)
 *   Product Hunt 分享讨论:[https://t.me/joinchat/CreGnBZN4DGqRb4HiBkm9g](https://t.me/joinchat/CreGnBZN4DGqRb4HiBkm9g)
